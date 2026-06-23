@@ -9,6 +9,15 @@ You do not need to plug it in from a phone; you can directly connect it to the b
 🌱 Automatic Plant Watering
 📱 Mobile App Control
 📊 Real-Time Moisture Monitoring
+
 # You can make your mother happy by making this 
+
+
 # THANK YOU FOR INSPECTING MY RESPIRATORY
+
+
+
 # ALL CODE CONNECTION APP ETC ARE THERE 
+
+
+
